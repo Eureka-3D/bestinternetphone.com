@@ -1,6 +1,10 @@
-This domain is for sale - $800.00 contact wsr2@wsr2.com to grab it up today!
+This domain is for sale
 
-The following domains are for sale by E3d.
+$800.00 
+
+Contact wsr2@wsr2.com to grab it up today!
+
+The following domains are for sale by E3d.us
 
 [BESTINTERNETPHONE.COM](http://BESTINTERNETPHONE.COM) $800
 
